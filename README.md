@@ -1,1 +1,1 @@
-<p align='center'> jaydin . he/him </br> 17 y/o , trans & queer . disabled </br>dogboy / kemonomimi & furry </br>artist - art comms open </br> <a href='https://www.instagram.com/rottn.one/'> insta </a></p>
+<p align='center'> jaydin . he/him </br> 17 y/o , trans & queer . disabled </br>dogboy / kemonomimi & furry </br>artist</br> <a href='https://www.instagram.com/rottn.one/'> insta </a></p>
