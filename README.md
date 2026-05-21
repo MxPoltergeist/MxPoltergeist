@@ -1,1 +1,1 @@
-<p align='center'> jaydin . he/him </br> 17 y/o , trans & queer . disabled </br>dogboy / kemonomimi & furry </br>artist</br>
+<p align='center'> jaydin . bodily 17 </br> dissociative subtype of ptsd / traumagenic sys </br> tmale & queer </p>
